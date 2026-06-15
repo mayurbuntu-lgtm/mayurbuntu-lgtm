@@ -1,4 +1,4 @@
-# Hi, I'm Mayur Buntu Kumar 👋
+# Hi, I'm Buntu Mayur Kumar 👋
 
 B.S. Computer Science — Cybersecurity Concentration  
 Missouri State University | GPA: 3.68 | Expected May 2027  
